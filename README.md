@@ -1,1 +1,1 @@
-# dekopinda-tapanuli-tengah
+# dekopinda-karanganyar
